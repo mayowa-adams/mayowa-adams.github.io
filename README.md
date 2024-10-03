@@ -7,3 +7,4 @@ I want to be very hardworking.
 I want to be a millionaire before the end of this year.
 I go get money this yearrrr!!!
 I will hustle hard this year ehn!
+I will fuck all the fine bitches in the world.
